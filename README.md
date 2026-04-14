@@ -1,0 +1,1 @@
+# hackathon-smart-solution
